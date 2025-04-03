@@ -37,10 +37,7 @@ Eternal Network机场大陆国际专线传输网络 | IPLC支持，多运营商�
 
 
 ##  优惠码
-八五折优惠码：1111
-
-八折优惠码（限年付）: 111120
-
+八折优惠码：1110
 限于时效性，最新优惠码，询问在线客服即可获得。
 ![image](https://github.com/user-attachments/assets/d4aeb02c-52c5-43ce-b011-535307b2a8a0)
 
